@@ -2,7 +2,7 @@
 
 <div align="center">
 ✧ Bonjour <33 ✧ You can call me <b>Vixen</b>, or <b>Faye</b> !! ✦<br>
-Check out my websites in my bio. -V1XENNAE ✧
+Check out my websites in my bio. -V1XEN ✧
   
 <br>
 
